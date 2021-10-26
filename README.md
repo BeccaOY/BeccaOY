@@ -2,7 +2,7 @@
 2. Welcome to my page
 3. I am working on something new😃
 4.  I am so excited!😉😉
-6. My name is Rebecca and I love cresting something out of data!
+6. My name is Rebecca and I love creating something out of (nothing) data!
 7. This is me...!
 8. ![IMG_9282](https://user-images.githubusercontent.com/79341728/138969481-6ef85169-9254-479e-8849-11dd39d90239.jpeg)
 9. And what I like to do👇🏿

@@ -11,5 +11,7 @@
 ![IMG_0835](https://user-images.githubusercontent.com/79341728/138969370-d4341065-3d63-4db5-be2c-52f423b9d657.jpeg)
 
 12 .Visit my profiles
+
 13. Tableau- https://public.tableau.com/app/profile/rebecca5856/viz/RebeccaOforiYeboahsInteractiveResume/InteractiveResume?publish=yes
+
 14. LinkedIn - https://www.linkedin.com/in/rebeccaoforiyeboah/

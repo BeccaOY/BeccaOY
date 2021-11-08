@@ -6,7 +6,7 @@
 8. This is me...!
 9. ![IMG_9282](https://user-images.githubusercontent.com/79341728/138969481-6ef85169-9254-479e-8849-11dd39d90239.jpeg)
 10. And what I like to do👇🏿
-![Interactive Resume](https://user-images.githubusercontent.com/79341728/140822510-3e0e2e35-a7c7-4ff7-85ea-ccda80a7dc80.png)
+![Interactive Resume-2](https://user-images.githubusercontent.com/79341728/140824162-d86c3d95-3f02-4c11-8ef1-2e320df28f52.png)
 
 
 

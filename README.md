@@ -15,4 +15,4 @@
 
 13. Tableau- https://public.tableau.com/app/profile/rebecca5856/viz/RebeccaOforiYeboahsInteractiveResume/InteractiveResume?publish=yes
 
-14. LinkedIn - https://www.linkedin.com/in/roforiyeboah/
+14. LinkedIn - https://www.linkedin.com/in/rebeccaoforiyeboah/
